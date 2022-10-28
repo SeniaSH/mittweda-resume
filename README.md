@@ -1,1 +1,1 @@
-# mittweda-resume
+https://seniash.github.io/rsschool-cv/
